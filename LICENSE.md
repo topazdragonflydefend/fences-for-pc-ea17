@@ -1,4 +1,4 @@
-# 
+# Fences for PC | Fences for Windows vip Script: window-positioning & monitor-configuration is the best Fences for PC | Fences for Windows script, featuring window-positioning and
 
 
 
